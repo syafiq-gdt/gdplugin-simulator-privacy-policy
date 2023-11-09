@@ -1,0 +1,1 @@
+# gdplugin-simulator-privacy-policy
